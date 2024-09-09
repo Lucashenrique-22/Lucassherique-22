@@ -12,4 +12,4 @@ Meu nome é Lucas Henrique
 
 
 
-![](https://tenor.com/pt-BR/view/elmer-sheep-thumbs-up-like-approved-gif-7569635)
+![](https://media.tenor.com/2gpoHQxAIugAAAAi/double-thumbs-up-emoticon-emoticon.gif)
